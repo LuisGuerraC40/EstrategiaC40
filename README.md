@@ -1,0 +1,2 @@
+# EstrategiaC40
+Plan 
